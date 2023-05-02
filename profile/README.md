@@ -1,0 +1,4 @@
+At 1648 Factory we help create the start-ups the world needs. Working at 1648 Factory means taking ownership and making a meaningful impact. We are a remote-first company connecting people with diverse skills and backgrounds, united by a love for building great products in a fun environment. We believe that our products will only be as good as the people who make them, so we aim to find the best talent who are excited about the ideas. 
+
+The core is our Engineering Hub. We select the employees ourselves in our interview center. Following the same philosophy that applies to our ventures: we invest in good people to achieve the best results.
+Together with our partners, we develop innovative ideas and build successful digital products. With start-ups, established companies, and consulting firms. We support from day zero to all growth phases with experience, technology, highly qualified software teams, and our investor network.
